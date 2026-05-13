@@ -1,4 +1,4 @@
-# 
+# rare nft mint bot | snipe-list-management + private-RPC-nodes offers the most advanced nft mint bot, with snipe-list-management and private-RPC-nodes. Ideal for professional NFT
 
 
 
